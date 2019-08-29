@@ -24,6 +24,8 @@ gung-ho
 gung-ho
 gung-ho
 
+ayeee
+
 gung-ho
 gung-ho
 gung-ho
@@ -31,6 +33,8 @@ gung-ho
 gung-ho
 gung-ho
 gung-ho
+
+ayeee
 
 overzealous
 work in harmony
