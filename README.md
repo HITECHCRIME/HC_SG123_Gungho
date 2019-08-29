@@ -32,6 +32,11 @@ gung-ho
 gung-ho
 gung-ho
 
+overzealous
+work in harmony
+work together
+enthusiastic
+
 ```
 
 ## Lyrics Production
