@@ -1,13 +1,13 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST - TITLE
+# MOTHNODE_ Gung Ho
 
 **Listen now:** x
 
 ## Project Data
 
 Description.
-
+Ghostemane X Suicideboys Type Beat "Poseidon" (Prod. NetuH)
 
 **Title:**  / **Featuring:** 
 
@@ -16,7 +16,21 @@ Description.
 ## Lyrics
 
 ```
+gung-ho
+gung-ho
+gung-ho
 
+gung-ho
+gung-ho
+gung-ho
+
+gung-ho
+gung-ho
+gung-ho
+
+gung-ho
+gung-ho
+gung-ho
 
 ```
 
