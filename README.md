@@ -41,6 +41,7 @@ work in harmony
 work together
 enthusiastic
 
+(check the logic project)
 ```
 
 ## Lyrics Production
