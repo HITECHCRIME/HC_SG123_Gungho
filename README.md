@@ -42,6 +42,16 @@ work together
 enthusiastic
 
 (check the logic project)
+
+gung-ho
+gung-ho
+gung-ho
+
+in your soul aye
+in your soul aye
+in your soul aye
+in your soul aye
+
 ```
 
 ## Lyrics Production
