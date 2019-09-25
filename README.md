@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Gung Ho
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
