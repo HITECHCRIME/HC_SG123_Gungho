@@ -11,7 +11,7 @@ Ghostemane X Suicideboys Type Beat "Poseidon" (Prod. NetuH)
 
 **Title:** Gung Ho / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** MOTHNODE
+**Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
