@@ -70,4 +70,6 @@ in your soul aye
 
 ## Notes
 
+Gungo-ho - enthusiastic, overzealous, work together, göng ho - working in harmony
+
 ## Music Video
